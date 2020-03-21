@@ -1,3 +1,4 @@
 # exalt-rotmg-beta
 
-# https://www.youtube.com/watch?v=sQx5oKYgetI&feature=youtu.be
+!!CLIENT IS NOT BYPASSED FOR PUBLIC YET!!  
+https://www.youtube.com/watch?v=sQx5oKYgetI&feature=youtu.be
